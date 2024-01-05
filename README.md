@@ -1,5 +1,6 @@
 # TakeTheWorkOutOfNetowrking
 Taking the Work Out of Networking: Your Guide to Making and Keeping Great Connections HIGHLIGHTS
+By Karen Wickre
 
 14 valuable lessons from Taking the Work Out of Networking: Your Guide to Making and Keeping Great Connections:
 
